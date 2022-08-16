@@ -1,2 +1,2 @@
 Amelia Smith
-Frontend Developer Certificate
+Dallas, TX
